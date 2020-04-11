@@ -1,1 +1,1 @@
-Read me bitch
+Read me b*tch
